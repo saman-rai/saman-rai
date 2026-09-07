@@ -48,9 +48,9 @@ Kyungdong University Global
 
 ## 📫 Connect With Me
 
-- LinkedIn: [your link]
-- Email: [your email]
-- Portfolio: [your website]
+- LinkedIn: [(http://linkedin.com/in/rai-saman/)]
+- Email: [saman.rai143@gmail.com]
+- Portfolio: [samanrai.com.np]
 
 ---
 
