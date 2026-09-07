@@ -50,7 +50,7 @@ Kyungdong University Global
 
 - LinkedIn: [(http://linkedin.com/in/rai-saman/)]
 - Email: [saman.rai143@gmail.com]
-- Portfolio: [samanrai.com.np]
+- Portfolio: [http://samanrai.com.np]
 
 ---
 
